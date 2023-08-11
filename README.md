@@ -14,4 +14,5 @@ Alexsandra.haisi@escola.pr.gov.br
 
 
 
-!.[].(https://media.tenor.com/Az59elqdXYkAAAAC/sad-summer.gif)
+!.[].(![image](https://github.com/Robson48cm/Robson48cm/assets/141885523/53831cde-8b7f-4658-8026-f9667ea3d1be)
+
